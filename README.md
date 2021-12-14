@@ -1,1 +1,1 @@
-# mentalhealthawareness
+# mentalhealth
